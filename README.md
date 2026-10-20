@@ -3,3 +3,4 @@
 
 <img width="440" height="277" alt="Screenshot 2026-10-19 131436" src="https://github.com/user-attachments/assets/5387b43a-a5b5-4158-8014-efea6a1b5198" />
 
+   ONLY FOR EDUCATIONAL PURPOSE!!! TRY THIS IN SAFE ENVIRONMENT...
